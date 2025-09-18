@@ -1,2 +1,2 @@
 # torsdagsopgaver18sep
-torsdagsopgaver
+Emil Frost Ahmadipour Hold A
